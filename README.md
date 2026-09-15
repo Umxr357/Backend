@@ -98,8 +98,8 @@ Suggestions, improvements, and constructive feedback are always welcome.
 
 ## 📫 Connect With Me
 
-* GitHub: **https://github.com/nitinbhhardwaj**
-* LinkedIn: *https://www.linkedin.com/in/nitin-bhardwaj-8bb880395/*
+* GitHub: **https://github.com/Umxr357**
+* LinkedIn: *www.linkedin.com/in/mohd-umar-6422b13a3/*
 
 ---
 
